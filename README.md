@@ -8,6 +8,6 @@ Here you can find essential files and documents such as:
 6. And many more
 
 Hope you can find your desired stuff that will help in you studies.
-If you have any suggestions or files to add please contact us via telegram links in bio!
+If you have any suggestions or files to add please contact us via telegram links: https://t.me/vinogradss or https://t.me/oi_wagwan
 
 With love, MCM-23BD
